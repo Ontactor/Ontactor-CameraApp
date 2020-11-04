@@ -61,13 +61,13 @@
 성명 :투샷원샷
 직책 :대표
 직급 :대표
-연락처 :010-3982-9803, wkddbjyjmail@gmail.com,
+연락처 :wkddbjyjmail@gmail.com,
 ※ 개인정보 보호 담당부서로 연결됩니다.
 
 ▶ 개인정보 보호 담당부서
 부서명 :투샷원샷
 담당자 :장유진
-연락처 :, wkddbjyjmail@gmail.com,
+연락처 : wkddbjyjmail@gmail.com,
 ② 정보주체께서는 투샷원샷(‘https://github.com/Ontactor’이하 ‘온택터) 의 서비스(또는 사업)을 이용하시면서 발생한 모든 개인정보 보호 관련 문의, 불만처리, 피해구제 등에 관한 사항을 개인정보 보호책임자 및 담당부서로 문의하실 수 있습니다. 투샷원샷(‘https://github.com/Ontactor’이하 ‘온택터) 은(는) 정보주체의 문의에 대해 지체 없이 답변 및 처리해드릴 것입니다.
 
 8. 개인정보 처리방침 변경
